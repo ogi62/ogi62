@@ -7,5 +7,6 @@ Hi there! 👋👋👋
 
 👨‍💼 LinkedIn: https://www.linkedin.com/in/ognjen-dangubic-769759224/
 
+🧑👋 My resume : https://ogidangubic.netlify.app/
 
 
